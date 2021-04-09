@@ -1,1 +1,0 @@
-# mypainisstillfargreaterthanyour.github.io
